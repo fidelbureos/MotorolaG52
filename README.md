@@ -1,0 +1,1 @@
+# MotorolaG52
